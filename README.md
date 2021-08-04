@@ -1,2 +1,2 @@
 # sundawani.vc
-#nobers
+#RECODE BOLEH [TAPI GAUSAH GANTI BOT FOLLOW NYA TOLOL]
